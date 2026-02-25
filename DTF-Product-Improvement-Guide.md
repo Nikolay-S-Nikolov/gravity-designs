@@ -3,7 +3,6 @@
 
 > **Дата на анализа:** 25 февруари 2026  
 > **URL на продукта:** https://gravity-designs.com/products/dtf-full-color-heat-transfer-sheets  
-> **Текущи продажби (90 дни):** 2 единици / $7.48 нетни приходи  
 
 ---
 
